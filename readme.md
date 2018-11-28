@@ -14,6 +14,7 @@
 2018.11.27 [后发先至！蔚来汽车产量达1万辆](https://baijiahao.baidu.com/s?id=1618358573743796215&wfr=spider&for=pc)<br>
 2018.9.12 [蔚来汽车上市分析](https://www.lieyunwang.com/archives/447243)<br>
 2018.9.12 香港上市 <br>
+2018.8.14 [背负百亿亏损赴美“割韭菜”，蔚来汽车欲融资18亿再烧三年？ ](http://www.sohu.com/a/247168929_99984129)<br>
 2018.5.31 10台开始交付 <br>
 2017.12.16 [蔚来ES8正式上市 重新定义汽车用户体验](https://www.nio.com/news/nio-launches-es8-suv-new-user-experience)<br>
 2017.3.15 [蔚来汽车完成6亿美元融资，百度资本、腾讯共同领投，估值达200亿元](https://www.iyiou.com/p/41052.html)<br>
