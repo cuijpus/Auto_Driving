@@ -11,6 +11,8 @@
 
 [蔚来汽车](https://www.nio.com/)<br>
 >>[蔚来汽车](https://baike.baidu.com/item/%E8%94%9A%E6%9D%A5/22099728?fromtitle=%E8%94%9A%E6%9D%A5%E6%B1%BD%E8%BD%A6&fromid=18585288&fr=aladdin)<br>
+>>[门徒李斌](https://www.lieyunwang.com/archives/446314)<br>
+>>[李斌：向未来奔袭](http://www.baidu.com/link?url=cEozR5Ei3kvjRrll0DmsDfzu_6fTmGiA6i3kB6Yhc13WBS6SfXSMaQiw9NjinWkWxzuqWAfa09U5nrPKj76u9md1itGqMYkrvF27UfCZC6e&wd=&eqid=c5be236900000458000000065bfe7232)<br>
 2018.11.27 [后发先至！蔚来汽车产量达1万辆](https://baijiahao.baidu.com/s?id=1618358573743796215&wfr=spider&for=pc)<br>
 2018.9.20 [“出行教父”李斌赌蔚来：新融资被指仅够撑一年半](http://tech.sina.com.cn/i/2018-09-20/doc-ifxeuwwr6194578.shtml)<br>
 2018.9.12 [蔚来汽车上市分析](https://www.lieyunwang.com/archives/447243)<br>
@@ -22,6 +24,7 @@
 ![融资](https://img2.iyiou.com/Editor/image/20170316/1489633825527079.jpg)<br>
 2016.11 发布车型 <br>
 2014.11 成立：李斌，刘强东，李想等人发起<br>
+
 
 [车和家](www.chehejia.com/)<br>
 
