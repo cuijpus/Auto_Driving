@@ -40,6 +40,12 @@
 [拜腾汽车] <br>
 
 
+[特斯拉]<br>
+>>[特斯拉，用硅谷的概念造汽车](http://xueshu.baidu.com/usercenter/paper/show?paperid=9e7f87ea21335585f465410edc424840&site=xueshu_se)<br>
+>>[特斯拉：生于硅谷的汽车搅局者](http://xueshu.baidu.com/usercenter/paper/show?paperid=fcb23d336bfd5a47042f2b562c786fe8&site=xueshu_se)<br>
+>>[特斯拉](https://baike.baidu.com/item/%E7%89%B9%E6%96%AF%E6%8B%89/2984315)<br>
+>>[风光背后历尽磨难 回顾特斯拉的硅谷发展历程](http://www.eeworld.com.cn/xfdz/2014/0223/article_30781.html)<br>
+
 
 
 
