@@ -10,6 +10,7 @@
 [融资规模超420亿！ 6大造车新势力“钱程似锦”](http://auto.zjol.com.cn/zjcw/xyzx/201803/t20180309_6757519.shtml)<br>
 
 [蔚来汽车](https://www.nio.com/)<br>
+>>[蔚来汽车](https://baike.baidu.com/item/%E8%94%9A%E6%9D%A5/22099728?fromtitle=%E8%94%9A%E6%9D%A5%E6%B1%BD%E8%BD%A6&fromid=18585288&fr=aladdin)<br>
 2018.11.27 [后发先至！蔚来汽车产量达1万辆](https://baijiahao.baidu.com/s?id=1618358573743796215&wfr=spider&for=pc)<br>
 2018.9.12 香港上市 <br>
 2018.5.31 10台开始交付 <br>
