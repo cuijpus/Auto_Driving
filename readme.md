@@ -10,11 +10,11 @@
 [融资规模超420亿！ 6大造车新势力“钱程似锦”](http://auto.zjol.com.cn/zjcw/xyzx/201803/t20180309_6757519.shtml)<br>
 
 [蔚来汽车](https://www.nio.com/)<br>
-2018.11.28 [后发先至！蔚来汽车产量达1万辆](https://baijiahao.baidu.com/s?id=1618358573743796215&wfr=spider&for=pc)<br>
+2018.11.27 [后发先至！蔚来汽车产量达1万辆](https://baijiahao.baidu.com/s?id=1618358573743796215&wfr=spider&for=pc)<br>
 2018.9.12 香港上市 <br>
-2018 开始交付 <br>
+2018.5.31 10台开始交付 <br>
 2016.11 发布车型 <br>
-2014.11 成立<br>
+2014.11 成立：李斌，刘强东，李想等人发起<br>
 
 [车和家](www.chehejia.com/)<br>
 
