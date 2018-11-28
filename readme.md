@@ -7,12 +7,19 @@
 
 
 # 新锐造车力量
+[融资规模超420亿！ 6大造车新势力“钱程似锦”](http://auto.zjol.com.cn/zjcw/xyzx/201803/t20180309_6757519.shtml)<br>
+
+[蔚来汽车](https://www.nio.com/)<br>
+2018.11.28 [后发先至！蔚来汽车产量达1万辆](https://baijiahao.baidu.com/s?id=1618358573743796215&wfr=spider&for=pc)<br>
+2018.9.12 香港上市 <br>
+2018 开始交付 <br>
+2016.11 发布车型 <br>
+2014.11 成立<br>
 
 [车和家](www.chehejia.com/)<br>
 
 >>[30多万就能买顶配！理想智造ONE完全解析！ ](http://news.bitauto.com/hao/wenzhang/980446)<br>
-
-[蔚来汽车] <br>
+2018.10.10 [发布：“李想”走进现实 解析理想智造ONE](https://www.pcauto.com.cn/teach/1330/13300503_all.html?ad=4222#content_page_2)<br>
 
 [小鹏汽车] <br>
 
