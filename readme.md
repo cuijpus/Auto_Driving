@@ -23,7 +23,7 @@
 2018.5.31 10台开始交付 <br>
 2017.12.16 [蔚来ES8正式上市 重新定义汽车用户体验](https://www.nio.com/news/nio-launches-es8-suv-new-user-experience)<br>
 2017.3.15 [蔚来汽车完成6亿美元融资，百度资本、腾讯共同领投，估值达200亿元](https://www.iyiou.com/p/41052.html)<br>
-[融资](https://img2.iyiou.com/Editor/image/20170316/1489633825527079.jpg)<br>
+[融资构成](https://img2.iyiou.com/Editor/image/20170316/1489633825527079.jpg)<br>
 2016.11 发布车型 <br>
 2014.11 成立：李斌，刘强东，李想等人发起<br>
 
