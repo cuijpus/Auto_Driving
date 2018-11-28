@@ -12,6 +12,7 @@
 [蔚来汽车](https://www.nio.com/)<br>
 >>[蔚来汽车](https://baike.baidu.com/item/%E8%94%9A%E6%9D%A5/22099728?fromtitle=%E8%94%9A%E6%9D%A5%E6%B1%BD%E8%BD%A6&fromid=18585288&fr=aladdin)<br>
 2018.11.27 [后发先至！蔚来汽车产量达1万辆](https://baijiahao.baidu.com/s?id=1618358573743796215&wfr=spider&for=pc)<br>
+2018.9.20 [“出行教父”李斌赌蔚来：新融资被指仅够撑一年半](http://tech.sina.com.cn/i/2018-09-20/doc-ifxeuwwr6194578.shtml)<br>
 2018.9.12 [蔚来汽车上市分析](https://www.lieyunwang.com/archives/447243)<br>
 2018.9.12 香港上市 <br>
 2018.8.14 [背负百亿亏损赴美“割韭菜”，蔚来汽车欲融资18亿再烧三年？ ](http://www.sohu.com/a/247168929_99984129)<br>
