@@ -5,6 +5,8 @@
 [Breakdown of self-driving car industry in China](https://medium.com/@fisher.jianyu.shi/breakdown-of-chinese-self-driving-car-industry-dd20deea7e73)<br>
 ![Overview](https://cdn-images-1.medium.com/max/800/1*YtowBkNiAJs0xnSSOOgCwg.png)<br>
 
+[2016年车联网及自动驾驶行业研究报告（1）](http://www.sohu.com/a/207199864_355061)<br>
+[2016年车联网及自动驾驶行业研究报告（2）](https://www.sohu.com/a/207199778_355061)<br>
 
 # 新锐造车力量
 [融资规模超420亿！ 6大造车新势力“钱程似锦”](http://auto.zjol.com.cn/zjcw/xyzx/201803/t20180309_6757519.shtml)<br>
