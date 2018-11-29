@@ -60,11 +60,18 @@
 
 [威马汽车] (http://www.wm-motor.com/)<br>
 >>[威马汽车技术有限公司](https://baike.baidu.com/item/%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E7%A7%91%E6%8A%80%E9%9B%86%E5%9B%A2%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/23126000?fromtitle=%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8&fromid=19868982)<br>
+>>[沈晖 （威马创始人、董事长兼CEO）](https://baike.baidu.com/item/%E6%B2%88%E6%99%96/6873214?fr=aladdin)<br>
+>>[威马CEO沈晖](https://www.iyiou.com/p/82909.html)<br>
 
 2018.11.29 [刷脸威马，善变DNA](https://baijiahao.baidu.com/s?id=1618449994753590599&wfr=spider&for=pc)<br>
 2018.11.28 [纯电SUV威马EX5开启智能电动汽车普及时代](https://baijiahao.baidu.com/s?id=1618375596731090593&wfr=spider&for=pc)<br>
 2018.10.29 [还没有开始，就已经结束，威马汽车准车主维权集体退车！ ](http://news.bitauto.com/hao/wenzhang/995421)<br>
+2018.10.6 [威马沈晖：不求公司上市，对今年交付1万辆有信心](威马沈晖：不求公司上市，对今年交付1万辆有信心)<br>
 2018.9.28 [威马汽车在温州新能源汽车智能产业园，举行了威马EX5产品上市交付大会，正式开启用户批量交付工作。](https://www.lieyunwang.com/archives/447777)<br>
+2018.5.8 [专访威马汽车创始人沈晖：我们要做智能电动汽车普及者](https://baijiahao.baidu.com/s?id=1599891044196823805&wfr=spider&for=pc)<br>
+2017.12.26 [专访威马汽车创始人沈晖：互联网巨头为何重金投资我们](http://baijiahao.baidu.com/s?id=1587828716286213052&wfr=spider&for=pc)<br>
+2017.12.12 [沈晖和威马汽车的七个问题 ](http://www.sohu.com/a/209952195_100044558)<br>
+
 
 
 [拜腾汽车] <br>
