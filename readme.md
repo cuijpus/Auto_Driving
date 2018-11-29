@@ -32,6 +32,7 @@
 [车和家](www.chehejia.com/)<br>
 >>[李想 （车和家创始人及CEO）](https://baike.baidu.com/item/%E6%9D%8E%E6%83%B3/7774?fr=aladdin)<br>
 >>[深度专访丨淡定者李想](https://www.iyiou.com/p/60962.html)<br>
+>>[李想造车，特斯拉的非典型信徒](https://baijiahao.baidu.com/s?id=1617798908863985006&wfr=spider&for=pc)<br>
 >>[北京车和家信息技术有限公司](https://baike.baidu.com/item/%E5%8C%97%E4%BA%AC%E8%BD%A6%E5%92%8C%E5%AE%B6%E4%BF%A1%E6%81%AF%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/22448219?fromtitle=%E8%BD%A6%E5%92%8C%E5%AE%B6&fromid=19488411&fr=aladdin)<br>
 >>[车和家聚合动态](https://www.iyiou.com/t/chehejia/)<br>
 2018.11.28 [车和家、金山云在AIoT上是如何与小米合作的？](https://baijiahao.baidu.com/s?id=1618349679635917230&wfr=spider&for=pc)<br>
