@@ -47,6 +47,7 @@
 >>[何小鹏 （UC公司的创始人、小鹏汽车董事长）](https://baike.baidu.com/item/%E4%BD%95%E5%B0%8F%E9%B9%8F/5646196?fr=aladdin)<br>
 >>[何小鹏,雷军，阿里](http://www.sohu.com/a/240375124_115207)<br>
 >>[被马云和雷军相中的男人，何小鹏](https://tech.sina.com.cn/roll/2018-06-14/doc-ihcwpcmr0089041.shtml)<br>
+>>[在看看何小鹏](https://www.sohu.com/a/166702493_313745)<br>
 2018.11.23 [惊艳！小鹏汽车G3，内饰比特斯拉豪华，充一次电能跑一周](惊艳！小鹏汽车G3，内饰比特斯拉豪华，充一次电能跑一周)<br>
 2018.11.16 [小鹏汽车首秀广州车展，双12正式上市](https://baijiahao.baidu.com/s?id=1617511518204824427&wfr=spider&for=pc)<br>
 2018.8.16 [小鹏汽车发布四周年大会，却遭到万人唾弃，小鹏究竟说了啥？](https://baijiahao.baidu.com/s?id=1608940036180941751&wfr=spider&for=pc)<br>
