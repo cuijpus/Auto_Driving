@@ -50,11 +50,13 @@
 >>[在看看何小鹏](https://www.sohu.com/a/166702493_313745)<br>
 2018.11.23 [惊艳！小鹏汽车G3，内饰比特斯拉豪华，充一次电能跑一周](惊艳！小鹏汽车G3，内饰比特斯拉豪华，充一次电能跑一周)<br>
 2018.11.16 [小鹏汽车首秀广州车展，双12正式上市](https://baijiahao.baidu.com/s?id=1617511518204824427&wfr=spider&for=pc)<br>
+2018.8.16 [专访何小鹏：造车是一个大坑，比互联网创业难100倍！](https://www.ithome.com/html/it/377349.htm)<br>
 2018.8.16 [小鹏汽车发布四周年大会，却遭到万人唾弃，小鹏究竟说了啥？](https://baijiahao.baidu.com/s?id=1608940036180941751&wfr=spider&for=pc)<br>
 2018.8.7 [新造车企业中，小鹏汽车为什么不着急卖车？ ](http://www.sohu.com/a/245639180_183181)<br>
 2018.8.7 [100亿融资还嫌不够，小鹏汽车与蔚来的赌局能赢吗？](https://baijiahao.baidu.com/s?id=1608147180604888690&wfr=spider&for=pc)<br>
 [融资时间轴](https://ss0.baidu.com/6ONWsjip0QIZ8tyhnq/it/u=190524471,2081380592&fm=173&app=25&f=JPEG?w=640&h=1532&s=283D851AF78840EA1EFDE7C2030080B4)<br>
 2018.8.2 [小鹏汽车宣布完成超过40亿元的B+轮融资，何小鹏本人参与领投, 目前100亿融资](https://www.iyiou.com/p/78229.html)<br>
+
 
 [威马汽车] <br>
 
