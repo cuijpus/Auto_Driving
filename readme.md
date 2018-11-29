@@ -47,7 +47,6 @@
 >>[威马汽车技术有限公司](https://baike.baidu.com/item/%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E7%A7%91%E6%8A%80%E9%9B%86%E5%9B%A2%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/23126000?fromtitle=%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8&fromid=19868982)<br>
 >>[沈晖 （威马创始人、董事长兼CEO）](https://baike.baidu.com/item/%E6%B2%88%E6%99%96/6873214?fr=aladdin)<br>
 >>[威马CEO沈晖](https://www.iyiou.com/p/82909.html)<br>
-
 2018.11.29 [刷脸威马，善变DNA](https://baijiahao.baidu.com/s?id=1618449994753590599&wfr=spider&for=pc)<br>
 2018.11.28 [纯电SUV威马EX5开启智能电动汽车普及时代](https://baijiahao.baidu.com/s?id=1618375596731090593&wfr=spider&for=pc)<br>
 2018.10.29 [还没有开始，就已经结束，威马汽车准车主维权集体退车！ ](http://news.bitauto.com/hao/wenzhang/995421)<br>
@@ -72,8 +71,13 @@
 2018.8.25 [车和家将在重庆建设投资110亿的制造基地](https://www.pcauto.com.cn/news/1274/12744355.html)<br>
 
 
-[拜腾汽车] <br>
+[拜腾汽车](https://www.byton.cn/) <br>
 
+>>[继6月融资后 拜腾与一汽再签合作协议](https://www.pcauto.com.cn/news/1230/12308241.html)<br>
+2018.8.29 [拜腾首台工程样车正式下线 2019年上市](https://baijiahao.baidu.com/s?id=1610082578675839785&wfr=spider&for=pc)<br>
+2018.7.9 [【企业报告】拜腾汽车业务研究](http://auto.gasgoo.com/institute/2038.html?area=d&idx=2)<br>
+2018.6.20 [对话拜腾B轮投资人：我们为什么要投资拜腾汽车？](http://baijiahao.baidu.com/s?id=1603758396478681483&wfr=spider&for=pc)<br>
+2018.1.26 [关于拜腾汽车，你想了解的都在这里](https://chejiahao.autohome.com.cn/info/2184105/)<br>
 
 [特斯拉]<br>
 >>[特斯拉，用硅谷的概念造汽车](http://xueshu.baidu.com/usercenter/paper/show?paperid=9e7f87ea21335585f465410edc424840&site=xueshu_se)<br>
