@@ -58,7 +58,7 @@
 2018.8.2 [小鹏汽车宣布完成超过40亿元的B+轮融资，何小鹏本人参与领投, 目前100亿融资](https://www.iyiou.com/p/78229.html)<br>
 
 
-[威马汽车] (http://www.wm-motor.com/)<br>
+[威马汽车](http://www.wm-motor.com/)<br>
 >>[威马汽车技术有限公司](https://baike.baidu.com/item/%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E7%A7%91%E6%8A%80%E9%9B%86%E5%9B%A2%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/23126000?fromtitle=%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8&fromid=19868982)<br>
 >>[沈晖 （威马创始人、董事长兼CEO）](https://baike.baidu.com/item/%E6%B2%88%E6%99%96/6873214?fr=aladdin)<br>
 >>[威马CEO沈晖](https://www.iyiou.com/p/82909.html)<br>
