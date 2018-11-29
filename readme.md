@@ -58,7 +58,14 @@
 2018.8.2 [小鹏汽车宣布完成超过40亿元的B+轮融资，何小鹏本人参与领投, 目前100亿融资](https://www.iyiou.com/p/78229.html)<br>
 
 
-[威马汽车] <br>
+[威马汽车] (http://www.wm-motor.com/)<br>
+>>[威马汽车技术有限公司](https://baike.baidu.com/item/%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E7%A7%91%E6%8A%80%E9%9B%86%E5%9B%A2%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/23126000?fromtitle=%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8&fromid=19868982)<br>
+
+2018.11.29 [刷脸威马，善变DNA](https://baijiahao.baidu.com/s?id=1618449994753590599&wfr=spider&for=pc)<br>
+2018.11.28 [纯电SUV威马EX5开启智能电动汽车普及时代](https://baijiahao.baidu.com/s?id=1618375596731090593&wfr=spider&for=pc)<br>
+2018.10.29 [还没有开始，就已经结束，威马汽车准车主维权集体退车！ ](http://news.bitauto.com/hao/wenzhang/995421)<br>
+2018.9.28 [威马汽车在温州新能源汽车智能产业园，举行了威马EX5产品上市交付大会，正式开启用户批量交付工作。](https://www.lieyunwang.com/archives/447777)<br>
+
 
 [拜腾汽车] <br>
 
