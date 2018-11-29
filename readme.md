@@ -22,7 +22,7 @@
 2018.8.14 [背负百亿亏损赴美“割韭菜”，蔚来汽车欲融资18亿再烧三年？ ](http://www.sohu.com/a/247168929_99984129)<br>
 2018.5.31 10台开始交付 <br>
 2017.12.16 [蔚来ES8正式上市 重新定义汽车用户体验](https://www.nio.com/news/nio-launches-es8-suv-new-user-experience)<br>
-2017.3.15 [蔚来汽车完成6亿美元融资，百度资本、腾讯共同领投，估值达200亿元](https://www.iyiou.com/p/41052.html)<br>
+2017.3.15 [蔚来汽车完成6亿美元融资，百度资本、腾讯共同领投，目前融资60亿，估值达200亿元](https://www.iyiou.com/p/41052.html)<br>
 [那些“李斌”们背后的资本大佬](https://www.iyiou.com/p/62523.html)<br>
 [融资构成](https://img2.iyiou.com/Editor/image/20170316/1489633825527079.jpg)<br>
 2016.11 发布车型 <br>
@@ -42,7 +42,16 @@
 2018.10.10 [发布：“李想”走进现实 解析理想智造ONE](https://www.pcauto.com.cn/teach/1330/13300503_all.html?ad=4222#content_page_2)<br>
 2018.8.25 [车和家将在重庆建设投资110亿的制造基地](https://www.pcauto.com.cn/news/1274/12744355.html)<br>
 
-[小鹏汽车] <br>
+[小鹏汽车](https://www.xiaopeng.com/) <br>
+>>[小鹏高智能互联网汽车](https://baike.baidu.com/item/%E5%B0%8F%E9%B9%8F%E6%B1%BD%E8%BD%A6/18716093?fr=aladdin)<br>
+
+2018.11.23 [惊艳！小鹏汽车G3，内饰比特斯拉豪华，充一次电能跑一周](惊艳！小鹏汽车G3，内饰比特斯拉豪华，充一次电能跑一周)<br>
+2018.11.16 [小鹏汽车首秀广州车展，双12正式上市](https://baijiahao.baidu.com/s?id=1618268469117968808&wfr=spider&for=pc)<br>
+2018.8.16 [小鹏汽车发布四周年大会，却遭到万人唾弃，小鹏究竟说了啥？](https://baijiahao.baidu.com/s?id=1608940036180941751&wfr=spider&for=pc)<br>
+2018.8.7 [新造车企业中，小鹏汽车为什么不着急卖车？ ](http://www.sohu.com/a/245639180_183181)<br>
+2018.8.7 [100亿融资还嫌不够，小鹏汽车与蔚来的赌局能赢吗？](https://baijiahao.baidu.com/s?id=1608147180604888690&wfr=spider&for=pc)<br>
+[融资时间轴](https://ss0.baidu.com/6ONWsjip0QIZ8tyhnq/it/u=190524471,2081380592&fm=173&app=25&f=JPEG?w=640&h=1532&s=283D851AF78840EA1EFDE7C2030080B4)<br>
+2018.8.2 [小鹏汽车宣布完成超过40亿元的B+轮融资，何小鹏本人参与领投, 目前100亿融资](https://www.iyiou.com/p/78229.html)<br>
 
 [威马汽车] <br>
 
