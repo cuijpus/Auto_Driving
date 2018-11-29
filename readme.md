@@ -11,6 +11,8 @@
 # 新锐造车力量
 [融资规模超420亿！ 6大造车新势力“钱程似锦”](http://auto.zjol.com.cn/zjcw/xyzx/201803/t20180309_6757519.shtml)<br>
 [为什么蔚来、威马、拜腾都认为自己造电动车比传统车企有优势？ ](https://chejiahao.autohome.com.cn/info/2184105/)<br>
+[盘点10家新造车势力融资情况：能够活下来的只有3-4家](http://auto.qq.com/a/20180103/002307.htm)<br>
+
 
 [蔚来汽车](https://www.nio.com/)<br>
 >>[蔚来汽车](https://baike.baidu.com/item/%E8%94%9A%E6%9D%A5/22099728?fromtitle=%E8%94%9A%E6%9D%A5%E6%B1%BD%E8%BD%A6&fromid=18585288&fr=aladdin)<br>
