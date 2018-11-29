@@ -28,20 +28,6 @@
 2016.11 发布车型 <br>
 2014.11 成立：李斌，刘强东，李想等人发起<br>
 
-
-[车和家](www.chehejia.com/)<br>
->>[李想 （车和家创始人及CEO）](https://baike.baidu.com/item/%E6%9D%8E%E6%83%B3/7774?fr=aladdin)<br>
->>[深度专访丨淡定者李想](https://www.iyiou.com/p/60962.html)<br>
->>[李想造车，特斯拉的非典型信徒](https://baijiahao.baidu.com/s?id=1617798908863985006&wfr=spider&for=pc)<br>
->>[北京车和家信息技术有限公司](https://baike.baidu.com/item/%E5%8C%97%E4%BA%AC%E8%BD%A6%E5%92%8C%E5%AE%B6%E4%BF%A1%E6%81%AF%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/22448219?fromtitle=%E8%BD%A6%E5%92%8C%E5%AE%B6&fromid=19488411&fr=aladdin)<br>
->>[车和家聚合动态](https://www.iyiou.com/t/chehejia/)<br>
-2018.11.28 [车和家、金山云在AIoT上是如何与小米合作的？](https://baijiahao.baidu.com/s?id=1618349679635917230&wfr=spider&for=pc)<br>
-2018.11.27 [车和家江苏工厂停建 或将借力帆资质造车？](https://baijiahao.baidu.com/s?id=1618297876980444853&wfr=spider&for=pc)<br>
->>[30多万就能买顶配！理想智造ONE完全解析！ ](http://news.bitauto.com/hao/wenzhang/980446)<br>
-2018.10.23 [车和家李想：不想早早站队BAT 短期内无IPO计划](http://money.163.com/18/1023/08/DUPP1TAC00259BO1.html)<br>
-2018.10.10 [发布：“李想”走进现实 解析理想智造ONE](https://www.pcauto.com.cn/teach/1330/13300503_all.html?ad=4222#content_page_2)<br>
-2018.8.25 [车和家将在重庆建设投资110亿的制造基地](https://www.pcauto.com.cn/news/1274/12744355.html)<br>
-
 [小鹏汽车](https://www.xiaopeng.com/) <br>
 >>[小鹏高智能互联网汽车](https://baike.baidu.com/item/%E5%B0%8F%E9%B9%8F%E6%B1%BD%E8%BD%A6/18716093?fr=aladdin)<br>
 >>[何小鹏 （UC公司的创始人、小鹏汽车董事长）](https://baike.baidu.com/item/%E4%BD%95%E5%B0%8F%E9%B9%8F/5646196?fr=aladdin)<br>
@@ -57,7 +43,6 @@
 [融资时间轴](https://ss0.baidu.com/6ONWsjip0QIZ8tyhnq/it/u=190524471,2081380592&fm=173&app=25&f=JPEG?w=640&h=1532&s=283D851AF78840EA1EFDE7C2030080B4)<br>
 2018.8.2 [小鹏汽车宣布完成超过40亿元的B+轮融资，何小鹏本人参与领投, 目前100亿融资](https://www.iyiou.com/p/78229.html)<br>
 
-
 [威马汽车](http://www.wm-motor.com/)<br>
 >>[威马汽车技术有限公司](https://baike.baidu.com/item/%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E7%A7%91%E6%8A%80%E9%9B%86%E5%9B%A2%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/23126000?fromtitle=%E5%A8%81%E9%A9%AC%E6%B1%BD%E8%BD%A6%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8&fromid=19868982)<br>
 >>[沈晖 （威马创始人、董事长兼CEO）](https://baike.baidu.com/item/%E6%B2%88%E6%99%96/6873214?fr=aladdin)<br>
@@ -72,6 +57,19 @@
 2017.12.26 [专访威马汽车创始人沈晖：互联网巨头为何重金投资我们](http://baijiahao.baidu.com/s?id=1587828716286213052&wfr=spider&for=pc)<br>
 2017.12.12 [沈晖和威马汽车的七个问题 ](http://www.sohu.com/a/209952195_100044558)<br>
 
+
+[车和家](www.chehejia.com/)<br>
+>>[李想 （车和家创始人及CEO）](https://baike.baidu.com/item/%E6%9D%8E%E6%83%B3/7774?fr=aladdin)<br>
+>>[深度专访丨淡定者李想](https://www.iyiou.com/p/60962.html)<br>
+>>[李想造车，特斯拉的非典型信徒](https://baijiahao.baidu.com/s?id=1617798908863985006&wfr=spider&for=pc)<br>
+>>[北京车和家信息技术有限公司](https://baike.baidu.com/item/%E5%8C%97%E4%BA%AC%E8%BD%A6%E5%92%8C%E5%AE%B6%E4%BF%A1%E6%81%AF%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/22448219?fromtitle=%E8%BD%A6%E5%92%8C%E5%AE%B6&fromid=19488411&fr=aladdin)<br>
+>>[车和家聚合动态](https://www.iyiou.com/t/chehejia/)<br>
+2018.11.28 [车和家、金山云在AIoT上是如何与小米合作的？](https://baijiahao.baidu.com/s?id=1618349679635917230&wfr=spider&for=pc)<br>
+2018.11.27 [车和家江苏工厂停建 或将借力帆资质造车？](https://baijiahao.baidu.com/s?id=1618297876980444853&wfr=spider&for=pc)<br>
+>>[30多万就能买顶配！理想智造ONE完全解析！ ](http://news.bitauto.com/hao/wenzhang/980446)<br>
+2018.10.23 [车和家李想：不想早早站队BAT 短期内无IPO计划](http://money.163.com/18/1023/08/DUPP1TAC00259BO1.html)<br>
+2018.10.10 [发布：“李想”走进现实 解析理想智造ONE](https://www.pcauto.com.cn/teach/1330/13300503_all.html?ad=4222#content_page_2)<br>
+2018.8.25 [车和家将在重庆建设投资110亿的制造基地](https://www.pcauto.com.cn/news/1274/12744355.html)<br>
 
 
 [拜腾汽车] <br>
