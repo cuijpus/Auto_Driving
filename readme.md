@@ -23,6 +23,7 @@
 2018.5.31 10台开始交付 <br>
 2017.12.16 [蔚来ES8正式上市 重新定义汽车用户体验](https://www.nio.com/news/nio-launches-es8-suv-new-user-experience)<br>
 2017.3.15 [蔚来汽车完成6亿美元融资，百度资本、腾讯共同领投，估值达200亿元](https://www.iyiou.com/p/41052.html)<br>
+[那些“李斌”们背后的资本大佬](https://www.iyiou.com/p/62523.html)<br>
 [融资构成](https://img2.iyiou.com/Editor/image/20170316/1489633825527079.jpg)<br>
 2016.11 发布车型 <br>
 2014.11 成立：李斌，刘强东，李想等人发起<br>
@@ -30,6 +31,7 @@
 
 [车和家](www.chehejia.com/)<br>
 >>[李想 （车和家创始人及CEO）](https://baike.baidu.com/item/%E6%9D%8E%E6%83%B3/7774?fr=aladdin)<br>
+>>[深度专访丨淡定者李想](https://www.iyiou.com/p/60962.html)<br>
 >>[北京车和家信息技术有限公司](https://baike.baidu.com/item/%E5%8C%97%E4%BA%AC%E8%BD%A6%E5%92%8C%E5%AE%B6%E4%BF%A1%E6%81%AF%E6%8A%80%E6%9C%AF%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/22448219?fromtitle=%E8%BD%A6%E5%92%8C%E5%AE%B6&fromid=19488411&fr=aladdin)<br>
 >>[车和家聚合动态](https://www.iyiou.com/t/chehejia/)<br>
 2018.11.28 [车和家、金山云在AIoT上是如何与小米合作的？](https://baijiahao.baidu.com/s?id=1618349679635917230&wfr=spider&for=pc)<br>
